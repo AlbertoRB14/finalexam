@@ -1,1 +1,1 @@
-# finalexam
+I enjoy this course, to be hones I don't like Google Colab or Python, but I like the way of evaluation and the way of how do the class was explain. The stickers is a good way to motivate students to participate in classes. I just would change the discussion panel of Canvas because I think is easier to just upload the file to a space in modules. 
